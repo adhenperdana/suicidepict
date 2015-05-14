@@ -1,0 +1,2 @@
+# suicidepict
+picture about suicide
